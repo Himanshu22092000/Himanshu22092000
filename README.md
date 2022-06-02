@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Himanshu22092000
+- 👋 Hi, I’m Himanshu jadoun
 - 📫 How to reach me hjadoun9@gmail.com 
 
 <!---
