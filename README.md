@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Himanshu jadoun a creative code.
+- 👋 Hi, I’m Himanshu jadoun a creative coder.
 - 📫 Reach me hjadoun9@gmail.com , [![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/himanshu-jadoun/)&nbsp;
 
 
